@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @OriginalMonko the Original.
+- 👀 I’m interested in work!
+- 🌱 I’m currently learning as much as possible!
+- 💞️ I’m looking to collaborate on anything interesting!
+- 📫 How to reach me: right here!
